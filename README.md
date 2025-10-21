@@ -1,5 +1,9 @@
 ## Hi there 👋
 
+Add me on Discord for Colabs! Always looking for new projects ⚡
+
+[Discord](https://discordapp.com/users/388552534387851266) | [LinkedIn](https://www.linkedin.com/in/syed-ahmad98/)
+
 <!--
 **SupremeNoble/SupremeNoble** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
